@@ -1,3 +1,4 @@
-# Blade
+# Character Information
 
-Blade is an special integrant of the group
+Name: Blade
+Last name: Calistman
