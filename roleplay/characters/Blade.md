@@ -1,7 +1,6 @@
 ---
 tags:
   - Character
-cssclasses:
 ---
 # Character Information
 
