@@ -1,6 +1,3 @@
-# Person
-
-```markdown
 # Nombre Completo
 **Apodo(s):**  
 **Edad:**  
@@ -36,8 +33,3 @@ Breve resumen de su pasado o trasfondo.
 - Ocupación:  
 - Lugar de residencia:  
 ```
-
-|  1  |   Name   | 2nd Name | 3rd Name | Last Name | Age |   Birth    |     |     |     |
-| :-: | :------: | :------: | :------: | :-------: | :-: | :--------: | --- | --- | --- |
-|  2  | Ezequiel |  Dario   |    -     |  Gravano  | 28  | 03/02/1997 |     |     |     |
-|     |          |          |          |           |     |            |     |     |     |
