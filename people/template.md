@@ -1,29 +1,29 @@
-# Nombre Completo
-**Apodo(s):**  
-**Edad:**  
-**Fecha de nacimiento:**  
-**Género:**  
-**Pronombres:**  
-## Apariencia
-- Altura:  
-- Cabello:  
-- Ojos:  
-- Estilo:  
-- Otros rasgos:  
-## Personalidad
-- Rasgos principales:  
-- Gustos:  
-- Disgustos:  
-- Manías:  
-## Historia
-Breve resumen de su pasado o trasfondo.
-## Relaciones
-- Familia:  
-- Amigos:  
-- Enemigos:  
-- Intereses románticos:  
-## Otros datos
+# Full Name
+**Nicknames:**  
+**Age:**  
+**Date of Birth:**  
+**Gender:**  
+**Pronouns:**  
+## Appearance
+- Height:  
+- Hair:  
+- Eyes:  
+- Style:  
+- Other features:  
+## Personality
+- Main traits:  
+- Likes:  
+- Dislikes:  
+- Obsessions:  
+## Background
+Brief summary of your past or backstory.
+## Relationships
+- Family:  
+- Friends:  
+- Enemies:  
+- Romantic interests:  
+## Additional Information
 - Hobbies:  
-- Frases típicas:  
-- Ocupación:  
-- Lugar de residencia:  
+- Catchphrases:  
+- Occupation:  
+- Place of residence:
