@@ -1,1 +1,1 @@
-Blade is an
+Blade is an special integrant of the group
