@@ -1,5 +1,5 @@
 # Character Information
 
-Name: Blade
+- Name: Blade
 - Last name: Calistman
 - Age:
