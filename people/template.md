@@ -1,29 +1,29 @@
 # Full Name
-**Nicknames:**  
-**Age:**  
-**Date of Birth:**  
-**Gender:**  
-**Pronouns:**  
+**Nicknames:** 
+**Age:** 
+**Date of Birth:** 
+**Gender:** 
+**Pronouns:** 
 ## Appearance
-- Height:  
-- Hair:  
-- Eyes:  
-- Style:  
-- Other features:  
+- Height: 
+- Hair: 
+- Eyes: 
+- Style: 
+- Other features: 
 ## Personality
-- Main traits:  
-- Likes:  
-- Dislikes:  
-- Obsessions:  
+- Main traits: 
+- Likes: 
+- Dislikes: 
+- Obsessions: 
 ## Background
 Brief summary of your past or backstory.
 ## Relationships
-- Family:  
-- Friends:  
-- Enemies:  
-- Romantic interests:  
+- Family: 
+- Friends: 
+- Enemies: 
+- Romantic interests: 
 ## Additional Information
-- Hobbies:  
-- Catchphrases:  
-- Occupation:  
-- Place of residence:
+- Hobbies: 
+- Catchphrases: 
+- Occupation: 
+- Place of residence: 
