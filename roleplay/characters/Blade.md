@@ -1,3 +1,7 @@
+---
+tags:
+  - Character
+---
 # Character Information
 
 - Name: Blade
