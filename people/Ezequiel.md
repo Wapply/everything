@@ -32,4 +32,3 @@ Breve resumen de su pasado o trasfondo.
 - Frases típicas:  
 - Ocupación:  
 - Lugar de residencia:  
-```
