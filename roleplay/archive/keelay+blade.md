@@ -282,3 +282,125 @@
 
 —Ah! Gracias...Adiós Derek 🤍
 
+晴̶̸꯭͝ ﹟ﺃ［ ＂𝐃𝚵𝐑̷̸̶꯭ꪰ𝐄ꩃ𝔎̶⃜⃢⃕𖠣🪽𑂵
+
+/Mientras Keelay estaba afuera trabajando, Derek estaba en la playa jugando con Aquiles, lo alimento, lo baño, y vio como era toda la casa, termino armando un cartel que decia "Bienvenido de vuelta Keelay <3" con corazones... pues Derek tenia su lado amoroso... pero era muy dificil sacar ese lado de Derek... perp Keelay, la forma en la que actuaba, era... especial para el... ademas de que al no estar trabajando, estaba mas relajado... aun asi, se aprendio cada centímetro de la casa... limpio cualquier parte que estaba sucia... dejo como nueva la casa... claro si dejo todo como estaba, no pensaba en cambiar algo, se veia lindo, solo quito el polvo y limpio algunas cosas... fue afuera solo para comprar cosas que le faltaban la heladera de Keelay y depaso, un Peluche para Keelay 🤍...
+
+⛥̶𞄳﹟ⵑ𝝟꯭𝝣𝝚ⸯ౼𝝞𝝠𝝪ⵑ᎒⭒⸸
+
+/Keelay llegó un poco más tarde de lo previsto, hubieron algunos inconvenientes en su trabajo y termino llegando a las 2am a la casa, se veía cansado...no bien llegó corrió a los brazos de Derek a acurrucarse contra el
+
+—BUWAAAAH!
+
+/lloriqueo levemente y le mostró su dedo, se habia quemado el dedito :<
+
+晴̶̸꯭͝ ﹟ﺃ［ ＂𝐃𝚵𝐑̷̸̶꯭ꪰ𝐄ꩃ𝔎̶⃜⃢⃕𖠣🪽𑂵
+
+/Derek le beso el dedo y uso su habilidad de regeneración con el...
+
+—Ahora estas bien? Como te fue Keelay, debes estar cansado...
+
+⛥̶𞄳﹟ⵑ𝝟꯭𝝣𝝚ⸯ౼𝝞𝝠𝝪ⵑ᎒⭒⸸
+
+/Keelay en un momento de confianza se subió sobre Derek y lo abrazo fuerte, tenía sus piernas alrededor de la cintura de este, el joven moreno ahora estaba más alto que Derek.
+
+—Si!..mi día estuvo agotador...una señora me tiró sopa :<
+
+/Dijo con un puchero como un niño
+
+晴̶̸꯭͝ ﹟ﺃ［ ＂𝐃𝚵𝐑̷̸̶꯭ꪰ𝐄ꩃ𝔎̶⃜⃢⃕𖠣🪽𑂵
+
+/Derek le gustó como se subio Keelay...
+
+—Patetica señora, estoy seguro que cocina para el orto en su casa. Solo le agarro envidia de tu maravilla 🤍
+
+/Derek estaba mirando los labios de Keelay... como este hacia un puchero... le dio ternura y...
+
+—Keelay...
+
+⛥̶𞄳﹟ⵑ𝝟꯭𝝣𝝚ⸯ౼𝝞𝝠𝝪ⵑ᎒⭒⸸
+
+/Bajo su mirada a Derek, lo miraba fijamente, parecía prestarle atención.
+
+—Si?
+
+/Dijo curioso, lo miraba con algo de ansias.
+
+晴̶̸꯭͝ ﹟ﺃ［ ＂𝐃𝚵𝐑̷̸̶꯭ꪰ𝐄ꩃ𝔎̶⃜⃢⃕𖠣🪽𑂵
+
+—Eres bonito.
+
+/Miro a Keelay incitandolo a un beso...
+
+⛥̶𞄳﹟ⵑ𝝟꯭𝝣𝝚ⸯ౼𝝞𝝠𝝪ⵑ᎒⭒⸸
+
+/Keelay la pensó, luego de unos segundos dió un beso suave, el chico era inexperto besando.
+
+晴̶̸꯭͝ ﹟ﺃ［ ＂𝐃𝚵𝐑̷̸̶꯭ꪰ𝐄ꩃ𝔎̶⃜⃢⃕𖠣🪽𑂵
+
+/Derek rodeo sus brazos en el cuerpo de Keelay...
+
+—Te enseñare a besar con el tiempo... crees ser capaz de mejorar?
+
+⛥̶𞄳﹟ⵑ𝝟꯭𝝣𝝚ⸯ౼𝝞𝝠𝝪ⵑ᎒⭒⸸
+
+/Miro fijamente a Derek y se acurrucó contra el, lo miraba con algo de cariño y pena.
+
+—Nk se besar...lo siento mucho..
+
+晴̶̸꯭͝ ﹟ﺃ［ ＂𝐃𝚵𝐑̷̸̶꯭ꪰ𝐄ꩃ𝔎̶⃜⃢⃕𖠣🪽𑂵
+
+/Derek acariciaba suavemente a Keelay como si fuera su tesoro...
+
+—Soy de quienes le importa la intención... cual fue tu intención Keelay?
+
+⛥̶𞄳﹟ⵑ𝝟꯭𝝣𝝚ⸯ౼𝝞𝝠𝝪ⵑ᎒⭒⸸
+
+—Hacerte sentir bien...
+
+/Fue lo único que dijo.
+
+晴̶̸꯭͝ ﹟ﺃ［ ＂𝐃𝚵𝐑̷̸̶꯭ꪰ𝐄ꩃ𝔎̶⃜⃢⃕𖠣🪽𑂵
+
+—Lo haz logrado Keelay, así que no pidas perdón... de acuerdo?
+
+⛥̶𞄳﹟ⵑ𝝟꯭𝝣𝝚ⸯ౼𝝞𝝠𝝪ⵑ᎒⭒
+
+/Dio un beso suave a la mejilla de Derek y lo miro con ojitos.
+
+—Dormimos?
+
+晴̶̸꯭͝ ﹟ﺃ［ ＂𝐃𝚵𝐑̷̸̶꯭ꪰ𝐄ꩃ𝔎̶⃜⃢⃕𖠣🪽𑂵
+
+/Derek abrazo a Keelay y ambos quedaron dormidos durante esa noche... incluso Aquiles vino a acostarse con ellos... Derek estaba en un momento tan tranquilo, tan... vulnerable...
+
+⛥̶𞄳﹟ⵑ𝝟꯭𝝣𝝚ⸯ౼𝝞𝝠𝝪ⵑ᎒⭒
+
+/El Alien despertó antes que Derek, se lo quedó mirando fijamente.
+
+—Despierta despierta
+
+晴̶̸꯭͝ ﹟ﺃ［ ＂𝐃𝚵𝐑̷̸̶꯭ꪰ𝐄ꩃ𝔎̶⃜⃢⃕𖠣🪽𑂵
+
+/Derek estaba en una pesadilla... pues, siempre tiene pesadillas, no sueña normal desde que dejo de ser Raziel... pero el disfruta las pesadillas... se termino despertando de golpe e inconcientemente le estaba agarrando del cuello a Keelay... este se dio cuenta
+
+—Oh! Perdon-
+
+/Solto a Keelay y se froto la cara y ojos despertandose...
+
+—Deberiamos desayunar... hoy trabajas?
+
+⛥̶𞄳﹟ⵑ𝝟꯭𝝣𝝚ⸯ౼𝝞𝝠𝝪ⵑ᎒⭒⸸
+
+/Las mejillas de Keelay estaban rojas. 
+
+—Mhg!!
+
+/Se puso nervioso y lo miro con las mejillas rojas
+
+—Es-esta bien...
+
+/Lo abrazo cuidadosamente y lo miraba
+
+—Si, deberíamos desayunar, yo hoy no trabajo 🫀
+
