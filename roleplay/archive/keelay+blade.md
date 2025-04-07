@@ -68,3 +68,121 @@
 
 —Usted es raro.
 
+晴̶̸꯭͝ ﹟ﺃ［ ＂𝐃𝚵𝐑̷̸̶꯭ꪰ𝐄ꩃ𝔎̶⃜⃢⃕𖠣🪽𑂵
+
+—Sera que ambos no somos humanos imbécil.
+
+/Saco su telefono.
+
+⛥̶𞄳﹟ⵑ𝝟꯭𝝣𝝚ⸯ౼𝝞𝝠𝝪ⵑ᎒⭒⸸
+
+—Humano raro. cada día los entiendo menos...
+
+/Dijo mientras miraba el suelo y el teléfono de Derek.
+
+—Telefono.
+
+晴̶̸꯭͝ ﹟ﺃ［ ＂𝐃𝚵𝐑̷̸̶꯭ꪰ𝐄ꩃ𝔎̶⃜⃢⃕𖠣🪽𑂵
+
+[💭]: Acaso no sabe lo que es un teléfono? Agh...
+
+/Le mostro a Keelay el teléfono, era su chat con Ashton quien no venia
+
+—Regla n°1: No confies en los humanos, te dejan plantado.
+
+⛥̶𞄳﹟ⵑ𝝟꯭𝝣𝝚ⸯ౼𝝞𝝠𝝪ⵑ᎒⭒⸸
+
+—Yo soy Chef...trabajo con humanos..
+
+/miraba fijamente a Derek, y luego su teléfono, saco su propio teléfono, era un teléfono muy bueno, un Samsung Z flip
+
+—Mira mira
+
+晴̶̸꯭͝ ﹟ﺃ［ ＂𝐃𝚵𝐑̷̸̶꯭ꪰ𝐄ꩃ𝔎̶⃜⃢⃕𖠣🪽𑂵
+
+/Miro el teléfono de Keelay
+
+—Eres chef, de verdad?
+
+⛥̶𞄳﹟ⵑ𝝟꯭𝝣𝝚ⸯ౼𝝞𝝠𝝪ⵑ᎒⭒⸸
+
+—Eres sordo o estúpido?
+
+/Dijo Keelay mirándolo fijamente los ojos del moreno estaban nuevamente rojos y azules, gruñio con algo de molestia.
+
+—Si, soy Chef.
+
+晴̶̸꯭͝ ﹟ﺃ［ ＂𝐃𝚵𝐑̷̸̶꯭ꪰ𝐄ꩃ𝔎̶⃜⃢⃕𖠣🪽𑂵
+
+/Derek lo miro
+
+—Tus ojos cambian dependiendo de tus emociones... quería molestarte, me parece lindo como cambian... por eso vine aquí, ya cállate y tranquilízate. Vi como brillaban tus ojos cuando me viste de lejos...
+
+/Lo agarro y lo beso en los labios como un impulso...
+
+⛥̶𞄳﹟ⵑ𝝟꯭𝝣𝝚ⸯ౼𝝞𝝠𝝪ⵑ᎒⭒⸸
+
+/Keelay era inexperto besando, Derek noto que Keelay tiene una lengua bifásica.
+
+—Oyw! no beses gente así como así.
+
+晴̶̸꯭͝ ﹟ﺃ［ ＂𝐃𝚵𝐑̷̸̶꯭ꪰ𝐄ꩃ𝔎̶⃜⃢⃕𖠣🪽𑂵
+
+/Derek al notar esto, pensó en otras cosas que podría hacer con Keelay... pero luego se encargaría de eso...
+
+—Hay humanos que lo hacen, mira, muerde mi brazo.
+
+/Le ofreecio el brazo
+
+⛥̶𞄳﹟ⵑ𝝟꯭𝝣𝝚ⸯ౼𝝞𝝠𝝪ⵑ᎒⭒⸸
+
+/Lo miro confuso, Pero lo hizo, tomo el brazo de Derek en sus manos y lo mordio, los colmillos de Keelay eran realmente afilados y también se parecían a los de una serpiente.
+
+晴̶̸꯭͝ ﹟ﺃ［ ＂𝐃𝚵𝐑̷̸̶꯭ꪰ𝐄ꩃ𝔎̶⃜⃢⃕𖠣🪽𑂵
+
+/Derek sintió los colmillos de este... Keelay termino sacándole sangre, la cual algunas gotas llegaron a entrar al cuerpo de este... Derek quería saber porque era raro este "humano", que era... la sangre que entro en el sistema de Keelay lo ayudaría a conectar con este biológicamente y asi hacer mas fácil llegar a ponerlo en un plano ancestral... mientras tanto lo distrajo.
+
+—Te gusta morder? Dime... como te llamas¿
+
+⛥̶𞄳﹟ⵑ𝝟꯭𝝣𝝚ⸯ౼𝝞𝝠𝝪ⵑ᎒⭒⸸
+
+—Solo me gusta morder comida...¿supongo? nose, nunca mordi a alguien, eres el primero... me llamo Keelay!
+
+/El Alien observaba algo confuso a Derek, sonrió de manera tonta y luego se quedó viendo a los perros que caminaban junto a sus dueños.
+
+—Que lindos!~
+
+晴̶̸꯭͝ ﹟ﺃ［ ＂𝐃𝚵𝐑̷̸̶꯭ꪰ𝐄ꩃ𝔎̶⃜⃢⃕𖠣🪽𑂵
+
+—Mi nombre es Derek...
+
+/Derek le gusto escuchar que era el primero...
+
+—Quieres un perro?
+
+/Derek se levanto y le ofrecio agarrarse de las manos
+
+—Podemos adoptar uno...
+
+/Derek no quería esperar mas a Ashton, estuvo ahi por horas...
+
+⛥̶𞄳﹟ⵑ𝝟꯭𝝣𝝚ⸯ౼𝝞𝝠𝝪ⵑ᎒⭒⸸
+
+/Lo miro aún sentado en el banco, luego miro el perro, extendió su mano hacia la mano de Derek, algo confuso
+
+—Adoptarlo juntos? ¿no estabas esperando a alguien?
+
+/pregunto con confusión notoria, Keelay era realmente tonto, se estaba yendo con un desconocido que acababa de conocer.
+
+晴̶̸꯭͝ ﹟ﺃ［ ＂𝐃𝚵𝐑̷̸̶꯭ꪰ𝐄ꩃ𝔎̶⃜⃢⃕𖠣🪽𑂵
+
+—Solo a mi asistente, pero lo he estado esperando por horas...
+
+/Al agarrar la mano de Keelay lo miro a este con cariño...
+
+—Asi que dime.... quieres?
+
+⛥̶𞄳﹟ⵑ𝝟꯭𝝣𝝚ⸯ౼𝝞𝝠𝝪ⵑ᎒⭒⸸
+
+/Miro a Derek y asintió varias veces, se levantó de donde estaba sentado y comenzó a caminar junto con Derek, oh, Keelay era medio tonto, miraba todo con asombro.
+
