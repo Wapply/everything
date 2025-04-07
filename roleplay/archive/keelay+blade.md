@@ -450,3 +450,26 @@
 
 /dijo algo nervioso entre risas mientras lo miraba
 
+![[Imagen de WhatsApp 2025-04-06 a las 21.50.18_c1003698.jpg]]
+
+晴̶̸꯭͝ ﹟ﺃ［ ＂𝐃𝚵𝐑̷̸̶꯭ꪰ𝐄ꩃ𝔎̶⃜⃢⃕𖠣🪽𑂵
+
+_/Le acaricio la mejilla..._
+
+—Keelay mira...
+
+_/Derek cambio sus ojos a como deberían ser... lo cual obviamente humanos no tenían..._
+
+⛥̶𞄳﹟ⵑ𝝟꯭𝝣𝝚ⸯ౼𝝞𝝠𝝪ⵑ᎒⭒⸸
+
+/Keelay se estremeció levemente y luego sonrió, sus ojitos también cambiaron
+
+—Alien?
+
+晴̶̸꯭͝ ﹟ﺃ［ ＂𝐃𝚵𝐑̷̸̶꯭ꪰ𝐄ꩃ𝔎̶⃜⃢⃕𖠣🪽𑂵
+
+—Demonio. Y tu... eres un Alien?
+
+⛥̶𞄳﹟ⵑ𝝟꯭𝝣𝝚ⸯ౼𝝞𝝠𝝪ⵑ᎒⭒⸸
+
+/Asintio
