@@ -186,3 +186,99 @@
 
 /Miro a Derek y asintió varias veces, se levantó de donde estaba sentado y comenzó a caminar junto con Derek, oh, Keelay era medio tonto, miraba todo con asombro.
 
+晴̶̸꯭͝ ﹟ﺃ［ ＂𝐃𝚵𝐑̷̸̶꯭ꪰ𝐄ꩃ𝔎̶⃜⃢⃕𖠣🪽𑂵
+
+/Derek llevo a Keelay a una tienda de mascotas donde había también animales en adopción...
+
+—Tienes alguna raza favorita?
+
+⛥̶𞄳﹟ⵑ𝝟꯭𝝣𝝚ⸯ౼𝝞𝝠𝝪ⵑ᎒⭒⸸
+
+—No quiero comprar...adoptemos...
+
+/Vio aún perro, era algo viejito Pero Keelay se enamoro de el (no en el sentido literal) en su placa decía que llevaba años en el lugar de adopción aunque Keelay nisiquiera la leyó, automáticamente lo señalo  
+
+—Quiero ese
+
+晴̶̸꯭͝ ﹟ﺃ［ ＂𝐃𝚵𝐑̷̸̶꯭ꪰ𝐄ꩃ𝔎̶⃜⃢⃕𖠣🪽𑂵
+
+/Derek sin dudarlo lo adopto, se lo mostro a la chica que atendia y esta lo miro como "Seguro?", Derek le devolvió la mirada con ojos en rojo y la chica de inmediato le dio los papeles... ambos salieron juntos con el perro...
+
+—Que nombre le pondremos?
+
+⛥̶𞄳﹟ⵑ𝝟꯭𝝣𝝚ⸯ౼𝝞𝝠𝝪ⵑ᎒⭒⸸
+
+—Tiene cara de Aquiles. 
+
+/Dijo mientras acariciaba felizmente al perro.
+
+晴̶̸꯭͝ ﹟ﺃ［ ＂𝐃𝚵𝐑̷̸̶꯭ꪰ𝐄ꩃ𝔎̶⃜⃢⃕𖠣🪽𑂵
+
+—Aquiles... me gusta.
+
+/Derek acaricio a Aquiles...
+
+—Tienes casa Keelay?
+
+⛥̶𞄳﹟ⵑ𝝟꯭𝝣𝝚ⸯ౼𝝞𝝠𝝪ⵑ᎒⭒⸸
+
+—Oh, si vivo en la costa de la ciudad, al lado del mar
+
+晴̶̸꯭͝ ﹟ﺃ［ ＂𝐃𝚵𝐑̷̸̶꯭ꪰ𝐄ꩃ𝔎̶⃜⃢⃕𖠣🪽𑂵
+
+—Alli es lindo... quieres que te acompañe?
+
+⛥̶𞄳﹟ⵑ𝝟꯭𝝣𝝚ⸯ౼𝝞𝝠𝝪ⵑ᎒⭒⸸
+
+—Claro, ven si querés!
+
+/Dijo amablemente y feliz, cuando llegaron a la casa era un linda casa moderna con una perfecta vista a la playa.
+
+晴̶̸꯭͝ ﹟ﺃ［ ＂𝐃𝚵𝐑̷̸̶꯭ꪰ𝐄ꩃ𝔎̶⃜⃢⃕𖠣🪽𑂵
+
+—Puedo quedarme esta semana aquí? Quiero despegarme de mi trabajo por un momento... nose, hacer cosas juntos... quizás ambos aprendamos cosas...
+
+⛥̶𞄳﹟ⵑ𝝟꯭𝝣𝝚ⸯ౼𝝞𝝠𝝪ⵑ᎒⭒⸸
+
+/Asintio varias veces y lo miro con tranquilidad mientras lo guiaba a la habitación de invitados
+
+—Claro que puedes,yo trabajo de 6pm a 12pm
+
+晴̶̸꯭͝ ﹟ﺃ［ ＂𝐃𝚵𝐑̷̸̶꯭ꪰ𝐄ꩃ𝔎̶⃜⃢⃕𖠣🪽𑂵
+
+—Puedo quedarme y cuidar de Aquiles...
+
+/Se sento en la cama...
+
+—Es la primera vez que le pido a alguien si puedo estar en su casa...
+
+⛥̶𞄳﹟ⵑ𝝟꯭𝝣𝝚ⸯ౼𝝞𝝠𝝪ⵑ᎒⭒⸸
+
+—Edta bien!
+
+/Dijo sonriente, mientras tomaba el uniforme del trabajo y lo guardaba en su mochila 
+
+—Ya debo irme, tengo comida en la heladera, Pero si algo no te gusta puedes ir a comprar.
+
+晴̶̸꯭͝ ﹟ﺃ［ ＂𝐃𝚵𝐑̷̸̶꯭ꪰ𝐄ꩃ𝔎̶⃜⃢⃕𖠣🪽𑂵
+
+—Oye antes de que te vayas!...
+
+⛥̶𞄳﹟ⵑ𝝟꯭𝝣𝝚ⸯ౼𝝞𝝠𝝪ⵑ᎒⭒⸸
+
+—Si?
+
+/Dijo mientras miraba fijamente a Derek, ladeó su cabeza suavemente.
+
+晴̶̸꯭͝ ﹟ﺃ［ ＂𝐃𝚵𝐑̷̸̶꯭ꪰ𝐄ꩃ𝔎̶⃜⃢⃕𖠣🪽𑂵
+
+/Derek abrazo a Keelay... no era normal en Derek... pero el hecho de que Keelay sea un Alien, Derek podia sentir eso, quizas aun no lo sabia pero si sentia algo extraño que le gustaba...
+
+—Adios Keelay 🤍
+
+⛥̶𞄳﹟ⵑ𝝟꯭𝝣𝝚ⸯ౼𝝞𝝠𝝪ⵑ᎒⭒⸸
+
+/miro fijamente a Derek y se puso rojito, el abrazo lo puso nervioso aunque no sabía cómo expresarlo.
+
+—Ah! Gracias...Adiós Derek 🤍
+
