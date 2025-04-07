@@ -404,3 +404,49 @@
 
 —Si, deberíamos desayunar, yo hoy no trabajo 🫀
 
+晴̶̸꯭͝ ﹟ﺃ［ ＂𝐃𝚵𝐑̷̸̶꯭ꪰ𝐄ꩃ𝔎̶⃜⃢⃕𖠣🪽𑂵
+
+—Eso significa mas tiempo juntos...
+
+/Derek tambien lo abrazo...
+
+—Tus mejillas estan rojas...
+
+/Le beso la mejilla...
+
+—Deberias mostrarme como cocinas un delicioso desayuno... 🤍
+
+⛥̶𞄳﹟ⵑ𝝟꯭𝝣𝝚ⸯ౼𝝞𝝠𝝪ⵑ᎒⭒⸸
+
+/Se levantó algo perezoso Pero se puso a cocinar para Derek, unos panqueques y un rico capuchino casero.
+
+晴̶̸꯭͝ ﹟ﺃ［ ＂𝐃𝚵𝐑̷̸̶꯭ꪰ𝐄ꩃ𝔎̶⃜⃢⃕𖠣🪽𑂵
+
+/Derek despues de levantarse, se quito la ropa y se puso solo un short... es muy raro verlo asi, pues estaba en su zona de comfort...
+
+⛥̶𞄳﹟ⵑ𝝟꯭𝝣𝝚ⸯ౼𝝞𝝠𝝪ⵑ᎒⭒⸸
+
+/Keelay ataba muy concentrado en los panqueques, se veía muy entretenido.
+
+晴̶̸꯭͝ ﹟ﺃ［ ＂𝐃𝚵𝐑̷̸̶꯭ꪰ𝐄ꩃ𝔎̶⃜⃢⃕𖠣🪽𑂵
+
+/Era un lindo amanecer... Derek salio con Aquiles a la playa y jugo con el en la arena, ambos se llevaban muy bien 🤍
+
+⛥̶𞄳﹟ⵑ𝝟꯭𝝣𝝚ⸯ౼𝝞𝝠𝝪ⵑ᎒⭒⸸
+
+/El alien salió a la arena detrás de Derek y dejo los panqueques junto al cafe al lado de Derek.
+
+-eres bastante agradable, aunque eres un humano raro-
+
+晴̶̸꯭͝ ﹟ﺃ［ ＂𝐃𝚵𝐑̷̸̶꯭ꪰ𝐄ꩃ𝔎̶⃜⃢⃕𖠣🪽𑂵
+
+/Agarro y bajo a Keelay a la arena con el y lo miro a los ojos.
+
+—Crees que soy humano?
+
+⛥̶𞄳﹟ⵑ𝝟꯭𝝣𝝚ⸯ౼𝝞𝝠𝝪ⵑ᎒⭒⸸
+
+-Oh, pareces uno 
+
+/dijo algo nervioso entre risas mientras lo miraba
+
