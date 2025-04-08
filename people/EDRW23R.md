@@ -1,4 +1,4 @@
-# Nombre Completo
+# Gravano Ezequiel Dario
 **Apodo(s):** (Aún no especificado)
 **Edad:** 28 años (Calculada basándonos en su fecha de nacimiento: 03/02/1997 y la fecha actual: 07/04/2025)
 **Fecha de nacimiento:** 03/02/1997
