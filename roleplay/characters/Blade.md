@@ -9,4 +9,3 @@ tags:
 - 
 - Age: 28
 
-Part of the Expedition 042.
