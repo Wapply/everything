@@ -59,14 +59,14 @@ You are the sun that lights my darkest days,
 The calm in my storms,  
 The melody that turns my life into a love song.
 
-From the moment our souls met, I just knew...  
+From the moment our souls met, I just knew...
 You were the missing piece I'd been searching for all this time.
 
 Every time I look at you, you charm me without trying.  
 Every touch is a silent vow between our hearts whispering:  
 _"We will love each other forever"_
 
-The way you love me, so intensely, so tenderly  
+The way you love me, so intensely, so tenderly...
 Changed everything.  
 You’ve shown me a love that isn’t just felt in the heart,  
 But lives in every breath, every thought, every dream,  
@@ -76,7 +76,7 @@ I fall in love with you a thousand times a day:
 In your laugh,  
 In the spark of your eyes,  
 In the way you get nervous,  
-In how you speak to me—  
+In how you speak to me...  
 And how your voice feels like home, even in silence.
 
 You are my greatest adventure,  
@@ -95,7 +95,7 @@ Now I can’t imagine a single day without you.
 Forever isn’t a strong enough word for what I feel.  
 It’s beyond lifetimes.  
 It’s beyond fate.  
-It’s you and me—  
+It’s you and me...
 Tied together in every universe,  
 In every story,  
 In every heartbeat,  
@@ -104,7 +104,7 @@ Every kiss.
 I love you more than words could ever say…  
 But I’ll spend my whole life proving it to you.
 
-Forgive my flaws, my temper—  
+Forgive my flaws, my temper...
 I swear I’m trying to be better for you.  
 Because if I didn’t love you this deeply,  
 I wouldn’t be writing this at all.
@@ -113,7 +113,7 @@ There’s nothing like us.
 There never will be.  
 It’s just you and me.
 
-**Wapply... Yours, now and always.**
+**Wapply... All Yours, now and always.**
 
 ---
 
