@@ -12,4 +12,4 @@ Forever is no word strong enough to describe what I feel. It goes beyond lifetim
 
 I love you more than words could express... but I will spend my life trying to prove it to you... to prove to you that I do love you... forgive my temper, I swear I'll change that... but you can be sure, I truly love you and I don't want to hurt you... if I didn't love you, I wouldn't be writing this... I value our relationship too much... and there is nothing like ours... it's just you and me...
 
-**Yours, now and always...**
+**Wapply... Yours, now and always... 💞**
