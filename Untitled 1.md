@@ -1,12 +1,6 @@
 **My Kayden, My Andrew, My Will, My Sparkle, My Husband, My Lover, My Moon, My Love, My Heart, My Brain, My Soul, My Everything**
 
-**My Sun, My Shelter, My Fire, My Light, My Peace, My Chaos, My Reason, My Safe Place, My Home, My Forever, My Darling, My Warmth, My Whisper, My Kiss, My Smile, My Laugh, My Daydream, My Nightfall, My Star, My Galaxy, My Sky, My Sweetheart, My Flame, My Pulse, My Breath, My Melody, My Song, My Symphony, My Art, My World**
-
-**My Spark, My Promise, My Touch, My Bliss, My Wish, My Fate, My Destiny, My Path, My Journey, My Rest, My Strength, My Weakness**
-
-**My Need, My Craving, My Joy, My Sorrow, My Hope, My Secret, My Confession, My Sin, My Salvation, My Truth, My Lie, My Madness**
-
-**My Comfort, My Fight, My Protector, My Healer, My Curse, My Cure, My Fall, My Rise, My Magic, My Poison, My Remedy, My Prayer**
+**My Sun, My Shelter, My Fire, My Light, My Peace, My Chaos, My Reason, My Safe Place, My Home, My Forever, My Darling, My Warmth, My Whisper, My Kiss, My Smile, My Laugh, My Daydream, My Nightfall, My Star, My Galaxy, My Sky, My Sweetheart, My Flame, My Pulse, My Breath, My Melody, My Song, My Symphony, My Art, My World, My Spark, My Promise, My Touch, My Bliss, My Wish, My Destiny, My Path, My Journey, My Rest, My Need, My Joy, My Hope, My Comfort, My Fight, My Protector, My Healer, My Curse, My Cure, My Fall, My Rise, My Magic, My Poison, My Remedy, My Prayer**
 
 **My Obsession, My Temptation, My Lightbulb, My Candle, My Halo, My Devil, My Teardrop, My Thunder, My Breathless, My Flutter, My Ache, My Calm**
 
