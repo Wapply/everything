@@ -1,10 +1,6 @@
 **My Kayden, My Andrew, My Will, My Sparkle, My Husband, My Lover, My Moon, My Love, My Heart, My Brain, My Soul, My Everything**
 
-**My Sun, My Shelter, My Storm, My Anchor, My Fire, My Light, My Peace, My Chaos, My Reason, My Rhythm, My Safe Place, My Home**
-
-**My Forever, My Darling, My Warmth, My Whisper, My Kiss, My Smile, My Laugh, My Daydream, My Nightfall, My Star, My Galaxy, My Sky**
-
-**My Sweetheart, My Flame, My Pulse, My Breath, My Gravity, My Muse, My Melody, My Song, My Symphony, My Canvas, My Art, My World**
+**My Sun, My Shelter, My Fire, My Light, My Peace, My Chaos, My Reason, My Safe Place, My Home, My Forever, My Darling, My Warmth, My Whisper, My Kiss, My Smile, My Laugh, My Daydream, My Nightfall, My Star, My Galaxy, My Sky, My Sweetheart, My Flame, My Pulse, My Breath, My Melody, My Song, My Symphony, My Art, My World**
 
 **My Spark, My Promise, My Touch, My Bliss, My Wish, My Fate, My Destiny, My Path, My Journey, My Rest, My Strength, My Weakness**
 
