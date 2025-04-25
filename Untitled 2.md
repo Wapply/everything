@@ -94,7 +94,40 @@ Demostramos nuestro amor a Jehová al obedecerlo y mantenernos leales, incluso e
 
 - Confiando en que obedecer a Jehová siempre es lo mejor para nosotros, ya que Él nos guía por el camino correcto (Isaías 48:17, 18).
     
+### 1. **¿Cómo demostró Job que amaba a Jehová de verdad?**
+
+Job demostró su amor por Jehová manteniéndose íntegro y fiel incluso en medio de las pruebas más difíciles. A pesar de perder sus posesiones, salud y ser acusado por Satanás de servir a Dios solo por interés (Job 1:9-11), Job no abandonó su integridad. Él declaró: "Hasta que muera, no abandonaré mi integridad" (Job 27:5) . ([Job 27:5 Lejos esté de mí que os dé la razón - Biblia Paralela](https://bibliaparalela.com/job/27-5.htm?utm_source=chatgpt.com))
 
 ---
 
-Para más detalles, puedes consultar la lección completa aquí: ([¿Cómo podemos demostrarle a Jehová que lo amamos? - JW.ORG](https://www.jw.org/es/biblioteca/libros/disfrute-vida-para-siempre/seccion-3/leccion-34/?utm_source=chatgpt.com))
+### 2. **¿Cómo se siente Jehová cuando usted le obedece y toma decisiones sabias? ¿Por qué?**
+
+Jehová se alegra cuando le obedecemos y tomamos decisiones sabias. Proverbios 27:11 dice: "Sé sabio, hijo mío, y alegra mi corazón". Nuestra obediencia demuestra nuestra lealtad y amor por Él, y refuta las acusaciones de Satanás de que solo servimos a Dios por interés.
+
+---
+
+### 3. **¿Se le hace difícil hablar con otros acerca de Jehová?**
+
+Hablar de Jehová puede ser desafiante, especialmente si enfrentamos oposición o miedo. Sin embargo, el amor y la lealtad a Dios nos motivan a compartir nuestra fe, incluso cuando no es fácil. El video "Defienda sus creencias ante la oposición" muestra cómo Grayson superó sus temores al confiar en Jehová y recordar que hablar de Él es una forma de demostrar nuestro amor y lealtad.
+
+---
+
+### 4. **Según el video, ¿cómo logró Grayson superar sus temores?**
+
+Grayson superó sus temores al confiar en Jehová y recordar que hablar de Él es una forma de demostrar nuestro amor y lealtad. Al enfocarse en su relación con Dios y en el deseo de agradarle, pudo enfrentar la oposición con valentía.
+
+---
+
+### 5. **¿Cuáles son algunas de las cosas que Jehová ama? ¿Y cuáles son algunas de las cosas que él odia?**
+
+Jehová ama la justicia, la verdad, la humildad y la bondad. Odia la maldad, la mentira, el orgullo y la injusticia. Salmo 97:10 dice: "Ustedes que aman a Jehová, odien lo que es malo". Aprendemos a amar lo que es bueno y a odiar lo que es malo al estudiar la Biblia y aplicar sus enseñanzas en nuestra vida diaria.
+
+---
+
+### 6. **¿Cree que Jehová realmente sabe lo que es mejor para nosotros? ¿Por qué piensa así?**
+
+Sí, Jehová sabe lo que es mejor para nosotros. Isaías 48:17-18 muestra que Dios nos enseña lo que es mejor y nos guía por el camino que debemos seguir. Confiar en su guía y obedecer sus mandamientos nos lleva a una vida más plena y significativa.
+
+---
+
+Para más detalles, podés consultar la lección completa en JW.org: ([¿Cómo podemos demostrarle a Jehová que lo amamos? - JW.ORG](https://www.jw.org/es/biblioteca/libros/disfrute-vida-para-siempre/seccion-3/leccion-34/?utm_source=chatgpt.com)).
