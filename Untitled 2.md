@@ -44,3 +44,57 @@ Demostramos nuestro amor a Jehová al obedecerlo y mantenernos leales, incluso e
     Obedeciéndolo con gusto, haciendo lo que le agrada y evitando lo que le desagrada. También, hablando de Él con otros, aunque sea difícil.
 - **¿Qué le ayudará a mantenerse leal a Jehová?**
     Amar lo que Jehová ama y odiar lo que Él odia. Confiar en que obedecerlo siempre es lo mejor para nosotros.
+
+¡Claro! Aquí están las respuestas específicas a las tres preguntas de la Lección 34, basadas en los seis puntos de la lección:
+
+---
+
+### 1. ¿Qué le enseña el ejemplo de Job?
+
+**Punto 3: Un asunto que tiene que ver con usted**
+
+- Satanás afirmó que Job servía a Jehová solo por interés, sugiriendo que si enfrentaba dificultades, dejaría de serle fiel (Job 1:9-11).
+    
+- Al mantener su integridad incluso en medio de grandes pruebas, Job demostró que amaba a Jehová sinceramente, no por las bendiciones que recibía.
+    
+- Esto nos enseña que podemos demostrar nuestro amor a Jehová siendo leales, incluso cuando enfrentamos adversidades.
+    
+
+---
+
+### 2. ¿Cómo demostrará usted su amor por Jehová?
+
+**Punto 1: ¿Cómo le demostramos a Jehová que lo amamos?**
+
+- Obedeciéndolo de corazón, no por obligación, sino porque deseamos agradarle (1 Juan 5:3; Romanos 6:17).
+    
+- Haciendo lo que a Él le gusta y evitando lo que le disgusta.
+    
+
+**Punto 5: Usted le puede ser leal a Jehová**
+
+- Hablando con otros acerca de Jehová, incluso cuando sea difícil, demostrando así nuestra lealtad y amor por Él.
+    
+
+---
+
+### 3. ¿Qué le ayudará a mantenerse leal a Jehová?
+
+**Punto 2: ¿Por qué puede ser difícil demostrarle a Jehová nuestro amor?**
+
+- Reconociendo que enfrentaremos dificultades y luchas personales, pero esforzándonos por obedecer a Jehová a pesar de ellas (Salmo 34:19).
+    
+
+**Punto 4: Alegre el corazón de Jehová**
+
+- Tomando decisiones sabias y obedeciendo a Jehová, lo que alegra su corazón y demuestra nuestra lealtad (Proverbios 27:11).
+    
+
+**Punto 6: Obedecer a Jehová nos hace bien**
+
+- Confiando en que obedecer a Jehová siempre es lo mejor para nosotros, ya que Él nos guía por el camino correcto (Isaías 48:17, 18).
+    
+
+---
+
+Para más detalles, puedes consultar la lección completa aquí: ([¿Cómo podemos demostrarle a Jehová que lo amamos? - JW.ORG](https://www.jw.org/es/biblioteca/libros/disfrute-vida-para-siempre/seccion-3/leccion-34/?utm_source=chatgpt.com))
