@@ -38,16 +38,9 @@ Claro, aquí te dejo un resumen de la Lección 34 de JW.org sobre cómo demostra
 
 Demostramos nuestro amor a Jehová al obedecerlo y mantenernos leales, incluso en tiempos difíciles. El ejemplo de Job nos enseña la importancia de la lealtad. Para mantenernos fieles, debemos amar lo que Jehová ama, confiar en Él y aceptar Su guía.
 
-Para más detalles, puedes consultar la lección completa aquí:
-
 - **¿Qué le enseña el ejemplo de Job?**
-    
     Que es posible ser leal a Jehová incluso en las peores pruebas. Job perdió todo, pero nunca dejó de confiar en Dios. Demostró que lo amaba de verdad, no por interés.
-    
 - **¿Cómo demostrará usted su amor por Jehová?**
-    
     Obedeciéndolo con gusto, haciendo lo que le agrada y evitando lo que le desagrada. También, hablando de Él con otros, aunque sea difícil.
-    
 - **¿Qué le ayudará a mantenerse leal a Jehová?**
-    
     Amar lo que Jehová ama y odiar lo que Él odia. Confiar en que obedecerlo siempre es lo mejor para nosotros.
