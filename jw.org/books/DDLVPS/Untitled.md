@@ -1,9 +1,9 @@
 ### 1. ¿Cómo ve Jehová el sexo?
 
-Jehová lo ve como un regalo para un hombre y una mujer casados que sirve para tener hijos y también para que se expresen amor y cariño.
-**Proverbios 5:18, 19**: “Goza con la esposa de tu juventud”.  
-Jehová espera fidelidad en el matrimonio.  
+Jehová lo ve como un regalo para un hombre y una mujer casados que sirve para tener hijos y también para que se expresen amor y cariño. **Proverbios 5:18, 19**: “Goza con la esposa de tu juventud”.  
+
 **Hebreos 13:4**: “Que todos honren el matrimonio... pero Dios juzgará a los que cometen inmoralidad sexual”.
+Jehová espera fidelidad en el matrimonio.  
 
 ---
 
