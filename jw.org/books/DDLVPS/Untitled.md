@@ -37,7 +37,7 @@ Situaciones peligrosas: contenido inmoral en redes, fiestas con alcohol, convers
 ### 4. Usted puede vencer la tentación
 
 Factores que complican: debilidad humana, ambiente sexualizado, falta de autocontrol.  
-El hermano del video reconoció el peligro y buscó la ayuda de Jehová.  
+El hermano del video reconoció el peligro y buscó la ayuda de Jehová, entonces empezo a meditar y 
 **Filipenses 4:8**: Pensar en lo que es verdadero, justo, puro, amable.  
 Leer la Biblia y servir a Jehová fortalece la mente, ayuda a resistir la tentación.
 
