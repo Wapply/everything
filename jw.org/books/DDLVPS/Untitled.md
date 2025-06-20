@@ -30,7 +30,7 @@ Sí, hizo lo correcto, obedeció el mandato de Jehová y nos enseña a evitar si
 
 **1 Corintios 6:18**: “Huyan de la inmoralidad sexual”.  
 Situaciones peligrosas: contenido inmoral en redes, fiestas con alcohol, conversaciones subidas de tono.  
-¿Cómo huir? Evitar malas compañías, pensar en las consecuencias, fortalecer la relación con Jehová.
+¿Cómo huir? Evitar malas compañías, pensar en las consecuencias, fortalecer la relación con Jehová, seguir el ejemplo de Jose.
 
 ---
 
