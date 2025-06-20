@@ -1,6 +1,6 @@
 ### 1. ¿Cómo ve Jehová el sexo?
 
-El sexo es un regalo de Jehová para un hombre y una mujer casados. Sirve para tener hijos (Génesis 1:28) y también para que se expresen amor y cariño.  
+Jehová lo ve como un regalo para un hombre y una mujer casados que sirve para tener hijos y también para que se expresen amor y cariño.
 **Proverbios 5:18, 19**: “Goza con la esposa de tu juventud”.  
 Jehová espera fidelidad en el matrimonio.  
 **Hebreos 13:4**: “Que todos honren el matrimonio... pero Dios juzgará a los que cometen inmoralidad sexual”.
