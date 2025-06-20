@@ -63,7 +63,7 @@ Sobre la homosexualidad:
 ### LO QUE ALGUNOS DICEN
 
 “No hay nada de malo si se aman”.  
-Respuesta: Jehová creó el sexo para el matrimonio (Hebreos 13:4). Amarse no justifica ignorar Su norma.
+Respuesta: Jehová creó el sexo para el matrimonio (Hebreos 13:4). Amarse no justifica ignorar su norma acerca de ello, pues es el Dios del amor.
 
 ---
 
