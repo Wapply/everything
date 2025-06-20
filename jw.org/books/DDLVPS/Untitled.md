@@ -8,15 +8,17 @@ Jehová lo ve como un regalo para un hombre y una mujer casados que sirve para t
 ---
 ### 2. ¿Qué es la inmoralidad sexual?
 
-Es todo acto sexual fuera del matrimonio, ademas de 
+Es todo acto sexual fuera del matrimonio, ademas de la:
+
 1. homosexualidad
     
 2. sexo con animales  
 
-**1 Corintios 6:9, 10**: “Los sexualmente inmorales... no heredarán el Reino de Dios”.  
-    Evitarla hace feliz a Jehová.  
-    **1 Tesalonicenses 4:3**: “Esta es la voluntad de Dios: que sean santos y se aparten de la inmoralidad sexual”.
-    
+**1 Corintios 6:9, 10**: “Los sexualmente inmorales... no heredarán el Reino de Dios”.
+
+Destaca que evitar estos actos hace feliz a Jehová, ya que en...
+
+**1 Tesalonicenses 4:3**: “Esta es la voluntad de Dios: que sean santos y se aparten de la inmoralidad sexual”.
 
 ---
 
