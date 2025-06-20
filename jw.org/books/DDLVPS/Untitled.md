@@ -69,7 +69,7 @@ Respuesta: Jehová creó el sexo para el matrimonio (Hebreos 13:4). Amarse no ju
 ### Repaso:
 
 **¿Qué prácticas abarca la inmoralidad sexual?**  
-Relaciones sexuales fuera del matrimonio, homosexualidad, sexo con animales (1 Corintios 6:9, 10).
+Relaciones sexuales fuera del matrimonio, homosexualidad, sexo con animales, adulterio (1 Corintios 6:9, 10).
 
 **¿Qué nos ayudará a no caer?**  
 Leer la Biblia, pensar en cosas puras (Filipenses 4:8), evitar situaciones peligrosas (1 Corintios 6:18), fortalecer relación con Jehová.
