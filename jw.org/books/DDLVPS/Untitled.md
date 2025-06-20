@@ -48,7 +48,7 @@ Leer la Biblia y servir a Jehová fortalece la mente, ayuda a resistir la tentac
 ### 5. Las normas de Jehová nos benefician
 
 **Proverbios 7:7-27**  
-El joven se metió en problemas por andar en lugares y momentos peligrosos (**v. 8, 9**).  
+El joven se metió en problemas por andar en lugares y momentos peligrosos, termino  (**v. 8, 9**).  
 **Proverbios 7:23, 26**: La inmoralidad sexual lleva a consecuencias graves (emocionales, espirituales).  
 Mantenerse limpio protege la conciencia, la salud, la relación con Jehová, y da felicidad.
 
