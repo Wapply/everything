@@ -39,7 +39,7 @@ Situaciones peligrosas: contenido inmoral en redes, fiestas con alcohol, convers
 Factores que complican: debilidad humana, ambiente sexualizado, falta de autocontrol.  
 El hermano del video reconoció el peligro y buscó la ayuda de Jehová, entonces empezo a meditar e investigar acerca de ello y encontro dos versiculos que lo ayudaron mucho.
 
-**Filipenses 4:8**: Pensar en lo que es verdadero, justo, puro, amable. Lo que a Jeho
+**Filipenses 4:8**: Pensar en lo que es verdadero, justo, puro, amable. Lo que a Jehová le gusta.
 
 Leer la Biblia y servir a Jehová fortalece la mente, ayuda a resistir la tentación claramente, pues estamos mejor conectados espiritualmente como el hermano del video que al hacerlo se vio mas capaz de afrontar un peligro asi.
 
