@@ -49,7 +49,10 @@ Leer la Biblia y servir a Jehová fortalece la mente, ayuda a resistir la tentac
 
 **Proverbios 7:7-27**  
 El joven se metió en problemas por andar en lugares y momentos peligrosos, termino dejandose guiar por la prostituta y confiando en si mismo.  
-**Proverbios 7:23, 26**: La inmoralidad sexual lleva a consecuencias graves como la expulsion, pero mas importante, un daño a nuestra relacion con Jehová. Mantenerse limpio protege la conciencia, la salud, la relación con Jehová, y da felicidad.
+
+**Proverbios 7:23, 26**: La inmoralidad sexual lleva a consecuencias graves como la expulsion, pero mas importante, un daño a nuestra relacion con Jehová. 
+
+Mantenerse limpio protege la conciencia, la salud, la relación con Jehová, y da felicidad.
 
 Sobre la homosexualidad:  
 **1 Corintios 6:9-11** muestra que no solo los deseos homosexuales son malos; también la inmoralidad en general, la avaricia, el robo, la idolatría... Todos debemos cambiar.  
