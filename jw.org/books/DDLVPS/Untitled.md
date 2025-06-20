@@ -72,11 +72,7 @@ Respuesta: Jehová creó el sexo para el matrimonio (Hebreos 13:4). Amarse no ju
 Relaciones sexuales fuera del matrimonio, homosexualidad, sexo con animales, adulterio (1 Corintios 6:9, 10).
 
 **¿Qué nos ayudará a no caer?**  
-Leer la Biblia, pensar en cosas puras (Filipenses 4:8), evitar situaciones peligrosas (1 Corintios 6:18), fortalecer relación con Jehová.
+Leer la Biblia diariamente, pensar en cosas puras (Filipenses 4:8), evitar situaciones peligrosas (1 Corintios 6:18), fortalecer relación con Jehová.
 
 **¿Cómo nos beneficia obedecer las normas?**  
 Protege nuestra conciencia, salud, relación con Jehová, nos da paz, gozo y esperanza de vida eterna (Salmo 19:8, 11).
-
----
-
-Si querés, también te armo el diálogo tipo para dar la lección.
