@@ -25,8 +25,8 @@ Destaca que evitar estos actos hace feliz a Jehová, ya que en...
 ### 3. Huya de la inmoralidad sexual
 
 **Génesis 39:1-12**  
-José huyó porque sabía que pecar sería deslealtad a Dios (**v. 9**: “¿Cómo podría yo hacer tal maldad y pecar contra Dios?”).  
-Sí, hizo lo correcto. Nos enseña a evitar situaciones de tentación.  
+José huyó porque sabía que pecar sería deslealtad a Dios “¿Cómo podría yo hacer tal maldad y pecar contra Dios?”.  
+Sí, hizo lo correcto, obedecio el. Nos enseña a evitar situaciones de tentación.
 **1 Corintios 6:18**: “Huyan de la inmoralidad sexual”.  
 Situaciones peligrosas: contenido inmoral en redes, fiestas con alcohol, conversaciones subidas de tono.  
 ¿Cómo huir? Evitar malas compañías, pensar en las consecuencias, fortalecer la relación con Jehová.
