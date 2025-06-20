@@ -8,15 +8,12 @@ Jehová lo ve como un regalo para un hombre y una mujer casados que sirve para t
 ---
 ### 2. ¿Qué es la inmoralidad sexual?
 
-Es todo acto sexual fuera del matrimonio.  
-La palabra **pornéia** incluye:
+Es todo acto sexual fuera del matrimonio, ademas de 
+1. homosexualidad
+    
+2. sexo con animales  
 
-1. relaciones sexuales entre no casados
-    
-2. homosexualidad
-    
-3. sexo con animales  
-    **1 Corintios 6:9, 10**: “Los sexualmente inmorales... no heredarán el Reino de Dios”.  
+**1 Corintios 6:9, 10**: “Los sexualmente inmorales... no heredarán el Reino de Dios”.  
     Evitarla hace feliz a Jehová.  
     **1 Tesalonicenses 4:3**: “Esta es la voluntad de Dios: que sean santos y se aparten de la inmoralidad sexual”.
     
