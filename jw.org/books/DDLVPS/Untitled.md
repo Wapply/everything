@@ -57,7 +57,7 @@ Mantenerse limpio protege la conciencia, la salud, la relación con Jehová, y d
 Sobre la homosexualidad:  
 **1 Corintios 6:9-11** muestra que no solo los deseos homosexuales son malos; también la inmoralidad en general, la avaricia, el robo, la idolatría, la codicia, etc... Todos debemos cambiar.  
 
-**Salmo 19:8, 11**: Las normas de Jehová son beneficiosas, traen gozon, nos llenan de alegria y nos permite disfrutar de la vida para siempre con Jehová. Vale la pena el esfuerzo totalmente.
+**Salmo 19:8, 11**: Las normas de Jehová son beneficiosas, traen gozon, nos llenan de alegria y nos permite disfrutar de la vida para siempre con Jehová. Vale la pena el esfuerzo totalmente. Lo que nos ofrece este mundo no se compara con lo que nuestro creador nos enseña y da.
 
 ---
 ### LO QUE ALGUNOS DICEN
